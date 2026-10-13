@@ -1,2 +1,2 @@
 # CDDteam
-How will read this they are GAY
+How will read this they are not Human Beings
